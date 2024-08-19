@@ -1,0 +1,1 @@
+# picture-text-translator-gizlilik-politikas-
